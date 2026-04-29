@@ -54,10 +54,14 @@ transforming motion from an art into a science.”*
 ## 📬 Contact
 
 **Marcel Ndeffo** — Founder & CEO  
+
 📧 marcel.ndeffo@tessellite.com  
+
 🌐 [tesselite.com](https://tesselite.com)
+
 📖 [cdn.tesselite.com](https://cdn.tesselite.com)
+
 ---
 
-© 2025 Tesselite — All rights reserved.
+© 2026 Tesselite — All rights reserved.
 
